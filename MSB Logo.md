@@ -1,3 +1,4 @@
-![mangeram logo](https://github.com/ANILKISAN/file/assets/134995687/a1b00e14-a2e5-4bc8-970e-154f5cf18baa)
+![IMG_20230714_194341](https://github.com/ANILKISAN/file/assets/134995687/c3fb8b7f-ebc9-405d-b005-1434ccfa56c7)
 
-<img src="https://github.com/ANILKISAN/file/assets/134995687/a1b00e14-a2e5-4bc8-970e-154f5cf18baa" width="614" height="435">
+
+<img src="https://github.com/ANILKISAN/file/assets/134995687/c3fb8b7f-ebc9-405d-b005-1434ccfa56c7" width="300" height="84">
