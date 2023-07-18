@@ -2,3 +2,9 @@
 
 
 ![Barsa beutiful editing AK CREATION OFFICIAL 2K21](https://github.com/ANILKISAN/file/assets/134995687/4c9b2bd5-10de-4128-b18c-8fb9dabf402e)
+
+
+![IMG_20230718_175712](https://github.com/ANILKISAN/file/assets/134995687/f20b3e77-fb70-4b98-a951-46ec3cd0f139)
+
+
+![Beauty girl portrait editing AK CREATION OFFICIAL 2K21](https://github.com/ANILKISAN/file/assets/134995687/d91d5af7-c843-4711-b371-10b24e8a7297)
